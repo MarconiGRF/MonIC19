@@ -1,0 +1,1 @@
+﻿![Maior entidade da turma](https://scontent.frec5-1.fna.fbcdn.net/v/t1.0-9/22366708_354876528305461_3707589608856538247_n.jpg?_nc_cat=106&_nc_ht=scontent.frec5-1.fna&oh=36e49124284130bb6762154712925c14&oe=5D03EF9A)\n Exercício de JPedroH \n
